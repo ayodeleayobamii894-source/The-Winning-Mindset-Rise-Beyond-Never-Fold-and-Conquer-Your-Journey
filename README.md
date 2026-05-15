@@ -1,0 +1,2 @@
+# The-Winning-Mindset-Rise-Beyond-Never-Fold-and-Conquer-Your-Journey
+Built on the foundations of faith, resilience, courage, and personal growth, The Winning Mindset challenges readers to reject fear, embrace the fire of purpose, and develop the mental toughness needed to conquer every stage of their journey. It is a message for dreamers, leaders, and warriors who understand that victory is not given
